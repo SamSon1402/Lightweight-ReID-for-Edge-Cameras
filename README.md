@@ -171,8 +171,8 @@ See insights immediately
 ## Order Today 📦
 **🛒 Complete Kit**: $200 (free shipping)  
 **📞 Questions**: 1-800-SIMPLE-AI  
-**💬 Text Support**: Text "HELP" to 12345  
-**📧 Email**: help@simpletracking.com  
+**💬 Text Support**: Text "HELP" to 745660992  
+**📧 Email**: sameerm1421999@gmail.com  
 
 **🎁 This Month Only**: Free phone holder for dashboard viewing!
 
